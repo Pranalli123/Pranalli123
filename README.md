@@ -2,7 +2,7 @@
 
 🎓 **Software Developer | Programmer | Web Technologies Enthusiast | Problem Solver**
 
-📍 Warje, Pune  
+📍 Wagholi, Pune  
 📧 shindepranali466@gmail.com  
 🔗 [LinkedIn](https://www.linkedin.com/in/pranali-shinde)  
 
